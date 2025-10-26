@@ -1,1 +1,1 @@
-# shadowsocks
+cracker dan salam
